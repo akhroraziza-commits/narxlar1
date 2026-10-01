@@ -1,0 +1,2 @@
+# narxlar1
+prays
